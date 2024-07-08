@@ -1,0 +1,1 @@
+Algumas das automações feitas 
